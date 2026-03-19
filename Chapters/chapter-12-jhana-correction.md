@@ -246,4 +246,297 @@ First jhana is quieter than that.
 More ordinary than that.
 More available than that.
 
--
+---
+
+### The Ordinary Availability of First Jhana
+
+**Teacher:**
+Here is what this actually means practically.
+
+You are walking the dogs in the morning.
+
+The mind is present. Not planning. Not reviewing. Just here.
+
+The five failure modes are not active. No reaching toward anything.
+No bracing against anything. The system is neither sluggish nor
+agitated. No paralysis.
+
+Attention is with the walk. The sensation of movement. The quality
+of the air. The light.
+
+There is a subtle aliveness in the noticing. Not excitement. Just
+presence with a quality of rightness.
+
+The body is comfortable. Not suppressed. Just at ease.
+
+The processing is unified. Not spectacular. Just clear.
+
+**Student:**
+That's just a nice walk.
+
+**Teacher:**
+That is first jhana.
+
+**Student:**
+That can't be right.
+
+**Teacher:**
+Why not?
+
+**Student:**
+It feels too ordinary.
+
+**Teacher:**
+Yes.
+
+That is exactly the problem with how jhana has been taught.
+
+The ordinariness is the feature, not the bug.
+
+First jhana is the natural condition of a present unhindered mind.
+
+It is not exotic. It is not rare. It is not reserved for advanced
+practitioners after years of retreat.
+
+It is what the mind naturally does when mindfulness is present and
+the five failure modes are not active.
+
+---
+
+### Recognizing What Is Already Present
+
+**Teacher:**
+The practice at this stage is not to achieve jhana.
+
+It is to recognize when you are already in the conditions.
+
+**Student:**
+How do I recognize it?
+
+**Teacher:**
+Notice these five qualities and check for their presence:
+
+**Directed attention** — can the cursor aim at something?
+Not perfectly. Not without any wandering. But can it aim?
+
+**Sustained attention** — can the cursor hold contact for more than
+a moment? Not indefinitely. But for a breath? A few seconds?
+
+**Piti** — is there a quality of aliveness or brightness in the
+noticing? Not ecstasy. Not excitement. Just: is the system alert and
+present?
+
+**Sukha** — is there a background ease? Not bliss. Not comfort as a
+feeling. Just: is the system not fighting itself right now?
+
+**Ekaggata** — is the processing unified rather than fragmented? Not
+one-pointed in a dramatic sense. Just: is there one thing happening
+rather than five competing things?
+
+When all five are present at any level — even subtle — you are in
+first jhana conditions.
+
+**Student:**
+And I should just... notice that?
+
+**Teacher:**
+Yes.
+
+Notice it without grasping for it.
+
+Grasping activates failure mode one — approach gain running hot.
+
+The moment you try to hold the jhana state, you have introduced the
+first failure mode, which suppresses the state.
+
+**Student:**
+So recognizing it without reaching for it is the skill.
+
+**Teacher:**
+That is the skill.
+
+---
+
+### Why This Changes Everything
+
+**Student:**
+If first jhana is this ordinary, what's the point of noting it?
+
+**Teacher:**
+Because recognition changes what is possible.
+
+When you do not know you are in first jhana conditions, you cannot
+use them deliberately. You cannot stabilize them. You cannot allow
+them to deepen naturally. You cannot recognize when they have been
+interrupted and need to be reestablished.
+
+When you know you are in first jhana conditions, the entire path
+opens.
+
+Not because something new was achieved.
+Because something already present was finally seen.
+
+**Student:**
+And deeper states?
+
+**Teacher:**
+They arise naturally when first jhana is stable.
+
+Not by forcing.
+
+By allowing the continuation signal to exhaust at each level.
+
+The same principle you learned with the Star Wars toys.
+
+Full external engagement tires and drops to reduced engagement.
+Reduced engagement tires and drops to internal engagement.
+Internal engagement tires and drops to awareness of awareness itself.
+That tires and drops.
+
+Each level is entered not by forcing the next but by allowing the
+current level's interest to exhaust naturally.
+
+First jhana is not a rung on a ladder you climb by effort.
+
+It is the first natural settling point.
+
+From which everything else unfolds on its own.
+
+---
+
+### The Correction Stated Plainly
+
+**Teacher:**
+Here is the correction stated as plainly as possible.
+
+The conditions you have been learning to establish in this manual —
+stable baseline, mindfulness present, five failure modes absent —
+are the conditions of first jhana.
+
+You have been practicing jhana from the beginning.
+
+You were not told this because the tradition lost track of where the
+entry was.
+
+Now you know.
+
+Use this information not to claim an attainment but to recognize what
+is already happening when the instrument is working correctly.
+
+And to stop dismissing those moments as insufficient because nothing
+dramatic occurred.
+
+Those ordinary moments of clear present unhindered awareness are
+not preparation for meditation.
+
+They are meditation.
+
+---
+
+### A Note on Deepening
+
+**Student:**
+What if I want the deeper states?
+
+**Teacher:**
+Then stabilize first jhana.
+
+Not by pushing toward the deeper states.
+
+By allowing first jhana conditions to persist long enough that the
+system naturally begins to settle further.
+
+The body becomes lighter.
+The sense of effort decreases.
+The aliveness intensifies without escalating.
+The ease deepens without collapsing.
+
+These are signs that the system is moving naturally.
+
+Do not reach toward them.
+Do not hold onto them.
+
+Watch what the system does when it is not being interfered with.
+
+**Student:**
+And the dramatic experiences people describe?
+
+**Teacher:**
+They may occur.
+
+They may not.
+
+They are not required for the path to proceed and they are not
+evidence that practice is working better when they do occur.
+
+The metric is stability over time.
+The metric is whether the instrument is working.
+The metric is whether recognition is deepening.
+
+Not the drama of the experience.
+
+---
+
+### Safety Note
+
+**Teacher:**
+One important clarification.
+
+As the system settles and deepens naturally, intensity may increase.
+
+Piti can become strong. The body may feel unusual. The breath may
+change. The sense of the body may become less defined.
+
+None of this is dangerous within a stable system.
+
+But if anything feels destabilizing — if orientation is lost, if
+distress appears, if you cannot return to baseline — stop.
+
+Return to ordinary activity.
+
+Re-establish baseline externally.
+
+The deeper states ask for more stability, not less.
+
+Never push past the system's current capacity.
+
+Skill comes from stability, not intensity.
+
+---
+
+### Closing Narration
+
+The door was never where you were told it was.
+
+It was here.
+
+In the ordinary moments of present unhindered awareness that you have
+been dismissing as insufficient because nothing extraordinary happened.
+
+In the quiet clarity between thoughts.
+
+In the walk with the dogs.
+
+In the moment before the narrative grabs the experience and turns it
+into a story about how the meditation is going.
+
+In every moment when mindfulness is present and the five failure modes
+are absent.
+
+Those moments are first jhana.
+
+They always were.
+
+You did not fail to reach them.
+
+You reached them and did not recognize them.
+
+Now you do.
+
+---
+
+*The next chapter addresses the continuation signal — the subtlest
+and most fundamental of the three craving mechanisms. It is the one
+that keeps the system running even after the more obvious forms of
+approach and avoidance have been seen through. Seeing it clearly is
+what makes the deepest settling possible.*
